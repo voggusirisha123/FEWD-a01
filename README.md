@@ -13,7 +13,6 @@ These are some things i like to do:
 * visit places
 
 Here is a picture of whaleshark:
-
 ![cup image](https://www.pinterest.co.uk/pin/689824867902700832/)
 
 If you like to see stuff check my [google account](https://news.google.com/?hl=en-US&gl=US&ceid=US:en)
